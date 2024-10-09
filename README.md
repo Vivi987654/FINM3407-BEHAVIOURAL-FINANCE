@@ -1,0 +1,2 @@
+# FINM3407-BEHAVIOURAL-FINANCE
+FINM3407 BEHAVIOURAL FINANCE and Financial Mathematics , add me wechat iuww1314
